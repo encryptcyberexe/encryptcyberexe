@@ -1,4 +1,4 @@
-![MasterHead](http://i.morioh.com/2021/12/18/ca95213f.webp)
+
 
 
 
